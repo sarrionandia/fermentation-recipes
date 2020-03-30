@@ -16,7 +16,7 @@
 
 * Laco fermentation
 * Put ingredients in jar, add enough brine to cover all vegetables. Approximately 3% salinity.
-* Add a weight to keep ingredients below the surface, I filled a sandwich bag with water and putit in my jar.
+* Add a weight to keep ingredients below the surface, I filled a sandwich bag with water and put it in my jar.
 * Ferment until ready. For me that was 10 days in spring in the south of the UK. The pigment will come out of the skin of 
   the radishes and turn the saline bright pink, then get absorbed back into them so they are pink-ish right the way through.
   The beans should remain pretty crunchy.
